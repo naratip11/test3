@@ -1,1 +1,1 @@
-juntip naratip
+juntip
